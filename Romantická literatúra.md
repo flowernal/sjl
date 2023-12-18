@@ -1,4 +1,4 @@
-Romantická literatúra – svetová (koniec 18. st. a začiatok 19. st.)
+**Romantická literatúra – svetová (koniec 18. st. a začiatok 19. st.)**
 
 V období romantizmu, koncom 18. storočia a na začiatku 19. storočia, sa literatúra začala značne meniť v dôsledku hospodárskych a politických zmien v spoločnosti. Postupný zánik feudalizmu a nástup kapitalizmu vyvolali významné udalosti:
 
