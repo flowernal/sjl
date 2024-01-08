@@ -19,3 +19,4 @@
 - partizáni boli ukrývaní do chvíle, kým neboli prezradení
 - Nemci sa pomstili ľuďom z Ploštiny
 - hl. postava **Voloďa** = sám autor
+- Voloďa si spomína na udalosti počas SNP - retrospektívne rozprávanie
