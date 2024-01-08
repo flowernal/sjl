@@ -1,12 +1,12 @@
 # Slovenská povojnová literatúra a súčasná
 
-- 1. povojnová (1945-1989)
-- 2. súčasná (po r. 1989)
+1. povojnová (1945-1989)
+2. súčasná (po r. 1989)
 
 **Delí sa na:**
-- 1. oficiálna - metóda **socialistického realizmu**
-- 2. semizdatová - lit. tajne rozširovaná (protikomunistická)
-- 3. exilová - lit. písaná v zahraničí - v emigrácii
+1. oficiálna - metóda **socialistického realizmu**
+2. semizdatová - lit. tajne rozširovaná (protikomunistická)
+3. exilová - lit. písaná v zahraničí - v emigrácii
 
 ## Ladislav Mňačko
 - 1968 emigroval
