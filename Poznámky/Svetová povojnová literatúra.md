@@ -1,5 +1,5 @@
 # Česká
-## Václav Havel - prvý prezident
+## Václav Havel
 - písal absurdnú drámu: **Vernisáž**, **Audience**, **Spiklenci**
 
 ## Jozef Škvorecký
