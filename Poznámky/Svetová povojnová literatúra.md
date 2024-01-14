@@ -28,7 +28,8 @@
 - počas vojny padol do nemeckého zajatia, z ktorého sa mu podarilo ujsť a v Rusku bol vyhlásený za nemeckého špióna, 6 rokov bol vo väzení, 2 v gulagu
 - svoje skúsenosti využil v psychologickej novele:
 
-### Jeden deň Ivana Denisoviča (1962)
+### Jeden deň Ivana Denisoviča
+- 1962
 - gulag, Sibír - 1 deň od budíčka po večierku
 - hlavná postava - **I. D. Šuchov** - meno si zobral od kamaráta, ale zobrazil svoje skúsenosti, sám seba
 - **Cézar** - privilegovaný väzeň, robil v kancelárii
