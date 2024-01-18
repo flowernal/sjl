@@ -1,4 +1,4 @@
-**Ján Chalupka (1788 – 1846)**
+**Ján Chalupka (1788 - 1846)**
 
 - **Obdobie klasicizmu a osvietenstva (1780 - 1830):**
   - Starší brat Sama Chalupku, aktívny v slovenskej klasicistickej a osvietenskej literature.

@@ -1,4 +1,4 @@
-**Ján Kollár (1793 – 1852)**
+**Ján Kollár (1793 - 1852)**
 
 - **Obdobie klasicizmu a osvietenstva (1780 - 1830):**
   - Patril do slovenskej klasicistickej a osvietenskej literatúry.

@@ -1,4 +1,4 @@
-**Romantická literatúra – svetová (koniec 18. st. a začiatok 19. st.)**
+**Romantická literatúra - svetová (koniec 18. st. a začiatok 19. st.)**
 
 V období romantizmu, koncom 18. storočia a na začiatku 19. storočia, sa literatúra začala značne meniť v dôsledku hospodárskych a politických zmien v spoločnosti. Postupný zánik feudalizmu a nástup kapitalizmu vyvolali významné udalosti:
 
@@ -6,7 +6,7 @@ V období romantizmu, koncom 18. storočia a na začiatku 19. storočia, sa lite
    - Manufaktúrna výroba sa presunula do väčších tovární, kde ľudskú prácu nahradili stroje.
 
 2. **Buržoázna revolúcia vo Francúzsku (1789):**
-   - Začiatok revolúcie s pádom Bastilly a heslom Sloboda – rovnosť – bratstvo. Podnietila revolúcie aj v ďalších krajinách.
+   - Začiatok revolúcie s pádom Bastilly a heslom Sloboda - rovnosť - bratstvo. Podnietila revolúcie aj v ďalších krajinách.
 
 **Znaky romantizmu:**
 - *Sentimentalizmus:* Cit prevládal nad rozumom.
@@ -36,9 +36,9 @@ V období romantizmu, koncom 18. storočia a na začiatku 19. storočia, sa lite
 - *Božena Němcová:* "Babička."
 - *Karel Hynek Mácha:* "Máj."
 
-**Slovenská romantická literatúra (1830 – 1850):**
+**Slovenská romantická literatúra (1830 - 1850):**
 - *Ľudovít Štúr:* Jazykovedec, spisovateľ, politik. Známy aj pre svoje záľuby v poľovníctve.
-- *Samo Chalupka:* "Mor ho!," báseň "Branko – epitaf."
+- *Samo Chalupka:* "Mor ho!," báseň "Branko - epitaf."
 - *Andrej Sládkovič:* "Marína," "Detvan."
 - *Janko Kráľ:* "Zakliata panna vo Váhu a divný Janko," príležitostné básne.
 - *Ján Botto:* "Smrť Jánošíkova," balady ako "Žltá ľalia," "Margita a Besná."

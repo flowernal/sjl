@@ -1,4 +1,4 @@
-**Ján Botto (1829 – 1881)**
+**Ján Botto (1829 - 1881)**
 
 - **Najmladší štúrovský básnik:**
   - Silne ovplyvnený ľudovou slovesnosťou.

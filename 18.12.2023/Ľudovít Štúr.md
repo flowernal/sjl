@@ -1,4 +1,4 @@
-**Ľudovít Štúr (1815 Uhrovec – 1856 Modra)**
+**Ľudovít Štúr (1815 Uhrovec - 1856 Modra)**
 
 - Získal základné vzdelanie v Uhrovci a pokračoval vo vzdelávaní v Bratislave na evanjelickom lýceu a neskôr v Nemecku (Halle), kde študoval filozofiu.
 - Po návrate do Bratislavy pôsobil ako profesor na evanjelickom lýceu.

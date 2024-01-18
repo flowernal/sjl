@@ -1,4 +1,4 @@
-**Samo Chalupka (1812 – 1883)**
+**Samo Chalupka (1812 - 1883)**
 
 - **Štúrovský básnik:**
   - Najstarší zo štúrovských básnikov.

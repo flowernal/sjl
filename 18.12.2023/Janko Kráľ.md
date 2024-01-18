@@ -1,4 +1,4 @@
-**Janko Kráľ (1822 – 1876)**
+**Janko Kráľ (1822 - 1876)**
 
 - **Charakteristika:**
   - Najrevolučnejší, najsubjektívnejší zo štúrovcov.

@@ -1,4 +1,4 @@
-**Slovenská preromantická a romantická literatúra (1830 – 1850)**
+**Slovenská preromantická a romantická literatúra (1830 - 1850)**
 
 - **Charakteristika obdobia:**
   - Nástup mladej generácie, predovšetkým štúrovcov.
@@ -9,6 +9,6 @@
 - **Znaky obdobia:**
   - Prevažovala lyrika.
   - V epike vynikali balady a povesti.
-  - Silný vplyv ľudovej slovesnosti – piesne, balady, povesti.
+  - Silný vplyv ľudovej slovesnosti - piesne, balady, povesti.
   - Dôraz na vyjadrovanie lásky k vlasti a národu.
   - Hlavné postavy boli často z nižších spoločenských vrstiev, často zbojníci.

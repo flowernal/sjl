@@ -2,7 +2,7 @@
 
 - **Život:**
   - Francúzsky dramatik, režisér, riaditeľ kočovnej hereckej spoločnosti a herec.
-  - V období klasicizmu, 1622 – 1673.
+  - V období klasicizmu, 1622 - 1673.
   
 - **Najznámejšie komédie:**
   - *Zdravý nemocný, Meštiak šľachticom, Mizantrop, Lakomec*.

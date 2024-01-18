@@ -1,14 +1,14 @@
 **Andrej Sládkovič (vl. meno Andrej Braxatoris)**
 
-- **Obdobie:** Slovenský romantizmus (1830 – 1850).
+- **Obdobie:** Slovenský romantizmus (1830 - 1850).
 - **Dielo:** Detvan.
   - *Charakteristika:* Veršovaná epická skladba (lyricko-epická), pozostávajúca z 5 spevov, zameraná na postavy a prírodu.
   - *Hlavné postavy:*
-    - Martin – Pastier oviec, hrdý na svoj jednoduchý pôvod, odvážny, úprimný, pracovitý.
-    - Elena – Martinova milá, zdôraznená vernosť.
-    - Kráľ Matej – Dobrý a spravodlivý panovník, ľudia ho obľubujú.
+    - Martin - Pastier oviec, hrdý na svoj jednoduchý pôvod, odvážny, úprimný, pracovitý.
+    - Elena - Martinova milá, zdôraznená vernosť.
+    - Kráľ Matej - Dobrý a spravodlivý panovník, ľudia ho obľubujú.
   - *Znaky:*
-    - Ideálne postavy – autor zdôrazňuje kladné vlastnosti postáv, zidealizované postavy.
+    - Ideálne postavy - autor zdôrazňuje kladné vlastnosti postáv, zidealizované postavy.
     - Opisy podpolianskej prírody, tradícií a zvykov.
   - *Dej:*
     - **1. spev Martin:** Martin sa predstavuje, odhaľuje svoj vzťah k prírode, zabil kráľovského sokola a rozhodol sa to oznámiť kráľovi.
@@ -28,6 +28,6 @@
   - *Štruktúra:* Prvá časť je lyricko-epická, druhá je reflexívno-symbolická, kde sa zameriava na Slovensko.
   - *Trvácnosť lásky:* Aj keď láska k Márii nebola naplnená, skladba nesie tragiku bez konečného smútku. Láska sa podľa autora nekončí a je ako diamant, nezhnije ani po smrti.
 
-- **Ďalšie dielo:** Básen "Nehaňte ľud môj" – obrana slovenského národa, jeho síl a schopností.
+- **Ďalšie dielo:** Básen "Nehaňte ľud môj" - obrana slovenského národa, jeho síl a schopností.
 
 - **Vplyv:** Sládkovič, rovnako ako Kollár, prispel k otvorenému vyjadrovaniu lásky k žene, no Sládkovičova láska bola k Slovenke. Detvan bol prijatý pozitívne, no Marína získala uznanie až po mnohých rokoch.
